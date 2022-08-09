@@ -10,7 +10,7 @@ Guys, I did it. I took the world's supply of those cookies. They're all mine. No
 I've gotten the weirdest of cravings recently -- every time I pass these cookies when I went to Walmart, I have this inexplicable urge to buy them. It's odd because I know how bad they are for you. On another note, the boyfriend of a student of mine developed a chrome extension and I tried it out! It's pretty cool, and I could see myself using it in the future. https://tinyurl.com/myevilredirect
 
 ### August 5, 2022
-There was a really interesting experiment I conducted at the lab yesterday. First, I dunked some litmus paper in an acidic solution. Then, because I was feeling particularly nefarious, I lit some copper sulfate on fire (yes I know that releases toxic fumes but I absolutely love the color!). Also, a shipment of Tartrazine came today that I'm looking forward to using in the future. I just love the beautiful colors of chemistry.
+There was a really interesting experiment I conducted at the lab yesterday. First, I dunked some litmus paper in an acidic solution. Also, a shipment of Tartrazine came today that I'm looking forward to using in the future. Then, because I was feeling particularly nefarious, I lit some copper sulfate on fire (yes I know that releases toxic fumes but I absolutely love the color!).  I just love the beautiful colors of chemistry.
 
 ### August 3, 2022
 They finally added my page! https://cns.utexas.edu/directory/item/16-molecular-biosciences/528-buskirk-ruth-e?Itemid=349
